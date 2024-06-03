@@ -12,3 +12,6 @@ Was wäre besser:
 
 ![20240521_175557.jpg](https://github.com/Smudo82/Chat-GPT/assets/151757363/e6a4fcbc-7fb3-441a-b83f-7e5b72a2e2ee)
 
+hh
+
+![20240521_175545.jpg](https://github.com/Smudo82/Chat-GPT/assets/151757363/f0fd2e17-4bb6-4ad8-b78e-75a035474b62)
