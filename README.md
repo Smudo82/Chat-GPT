@@ -14,4 +14,8 @@ Was wäre besser:
 
 hh
 
+![20240521_175600.jpg](https://github.com/Smudo82/Chat-GPT/assets/151757363/4d449824-ac98-472a-99de-69bc28d22ba4)
+
+kk
+
 ![20240521_175545.jpg](https://github.com/Smudo82/Chat-GPT/assets/151757363/f0fd2e17-4bb6-4ad8-b78e-75a035474b62)
