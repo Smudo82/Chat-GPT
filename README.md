@@ -12,16 +12,13 @@ Was wäre besser:
 
 ![20240521_175557.jpg](https://github.com/Smudo82/Chat-GPT/assets/151757363/e6a4fcbc-7fb3-441a-b83f-7e5b72a2e2ee)
 
-hh
 
+![20240521_175600.jpg](https://github.com/Smudo82/Chat-GPT/assets/151757363/4d449824-ac98-472a-99de-69bc28d22ba4)
 
-kk
-
-![20240509_083209.jpg](https://github.com/Smudo82/Chat-GPT/assets/151757363/c5f1136b-b1b5-4f64-90e5-a82db5effc97)
 
 Chatverlauf obwohl Sie sagt Sie hat den Kontakt abgebrochen.
 
-![20240521_175600.jpg](https://github.com/Smudo82/Chat-GPT/assets/151757363/4d449824-ac98-472a-99de-69bc28d22ba4)
+![20240509_083209.jpg](https://github.com/Smudo82/Chat-GPT/assets/151757363/c5f1136b-b1b5-4f64-90e5-a82db5effc97)
 
 ![20240521_175545.jpg](https://github.com/Smudo82/Chat-GPT/assets/151757363/f0fd2e17-4bb6-4ad8-b78e-75a035474b62)
 
