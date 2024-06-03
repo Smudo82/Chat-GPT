@@ -19,3 +19,5 @@ hh
 kk
 
 ![20240521_175545.jpg](https://github.com/Smudo82/Chat-GPT/assets/151757363/f0fd2e17-4bb6-4ad8-b78e-75a035474b62)
+
+![20240509_083201.jpg](https://github.com/Smudo82/Chat-GPT/assets/151757363/7bd09828-d066-411f-abba-ec4ce7e76162)
